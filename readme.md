@@ -1,2 +1,1 @@
-Documentación ori
-tradu
+Documentación original traducida
